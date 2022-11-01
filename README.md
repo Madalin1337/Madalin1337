@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Madalin1337
-- 👀 I’m interested in: Game hacking
+- 👀 I’m interested in: Game Hacking
 - 🌱 I’m currently learning: C++
 - 💞️ I’m looking to collaborate on: -
 - 📫 How to reach me: madalinmadalin953@gmail.com
