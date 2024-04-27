@@ -2,4 +2,4 @@
 - 👀 I’m interested in: Game Hacking
 - 🌱 I’m currently learning: C++
 - 💞️ I’m looking to collaborate on: -
-- 📫 How to reach me: madalinmadalin953@gmail.com
+- 📫 How to reach me: -
